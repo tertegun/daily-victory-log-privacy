@@ -1,0 +1,1 @@
+# daily-victory-log-privacy
